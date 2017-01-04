@@ -1,1 +1,0 @@
-# karlyatutuk02
